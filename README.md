@@ -12,5 +12,5 @@ qqqqqgjj
 jjaab
 12345
 Gg
-Bir 
+Bir daha yollar 
 Daha uygun 
