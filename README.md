@@ -1,3 +1,3 @@
 # frank-1 uygun
 Görürseniz 
-Bu arada 
+Bu arada ben ğ
