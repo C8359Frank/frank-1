@@ -8,4 +8,4 @@ Gmm
 ttmm c ffj
   ffjvcc
   ffc
-c
+çok 
