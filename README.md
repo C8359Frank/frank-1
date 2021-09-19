@@ -7,6 +7,6 @@ Vjkkmmmmgkljc
 Gmm
 ttmm c ffj
   ffjvcc
-  ffc
+  ffcj
 çok 
 H
