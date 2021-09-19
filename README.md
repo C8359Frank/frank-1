@@ -6,7 +6,7 @@ yçfc
 Vjkkmmmmgkljc
 Gmm
 ttmm c ffj
-  ffjvcc
+  falan 
   ffcj
 çok 
 H
