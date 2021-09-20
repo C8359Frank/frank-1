@@ -6,7 +6,7 @@ yçfc
 Vjkkmmmmgkljc 
 Gömlek 
 ttmm c ffjkk
-  falan 
+  falan var 
   ffcj
 çok güzel 
 H
