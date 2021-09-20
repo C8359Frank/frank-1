@@ -5,7 +5,7 @@ yyyyyykjjxdclkj
 yçfc
 Vjkkmmmmgkljc 
 Gmm
-ttmm c ffj
+ttmm c ffjk
   falan 
   ffcj
 çok güzel 
