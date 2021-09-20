@@ -8,5 +8,5 @@ Gömlek
 ttmm c ffjkk
   falan var 
   ffcj
-çok güzel 
+çok güzel olmuş 
 H
