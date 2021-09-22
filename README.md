@@ -5,7 +5,7 @@ yyyyyykjjxdclkj
 yçfc
 Vjkkmmmmgkljc 
 Gömlek 
-ttmm c ffjkkgfhf
+ttmm c ffjkfgfgkgfhf
   falan var 
   ffcj
 çok güzel olmuş 
