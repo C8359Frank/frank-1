@@ -10,4 +10,4 @@ ttmm c ffjkfgfgkgfhf
   ffcj
 çok güzel olmuş çok 
 Her gün içinde 
-Bir 
+Bir şey 
