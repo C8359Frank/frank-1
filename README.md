@@ -9,4 +9,4 @@ ttmm c ffjkfgfgkgfhf
   falan var 
   ffcj
 çok güzel olmuş çok 
-Her gün 
+Her gün içinde 
