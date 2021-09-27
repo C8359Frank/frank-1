@@ -4,7 +4,7 @@ anna12344557788yyhhfflk
 yyyyyykjjxdclkj
 yçfc
 Vjkkmmmmgkljc iyi hgj
-Gömlek bir 
+Gömlek bir bfbg
 ttmm c ffjkfgfgkgfhf
   falan var 
   ffcj
