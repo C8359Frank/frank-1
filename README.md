@@ -6,7 +6,7 @@ yçfc
 Vjkkmmmmgkljc iyi hgjnhmgh
 Gömlek bir bfbg
 ttmm c ffjkfgfgkgfhnvbnvf
-  falan var  bnghhtrfhf
+  falan var  bugün 
   ffcj
 çok güzel olmuş çok 
 Her gün içinde 
