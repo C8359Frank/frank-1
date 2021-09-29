@@ -10,4 +10,4 @@ ttmm c ffjkfgfgkgfhnvbnvf
   ffcj
 çok güzel olmuş çok teşekkür 
 Her gün içinde 
-Bir şey 
+Bir şey gre
