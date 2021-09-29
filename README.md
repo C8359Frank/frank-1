@@ -9,5 +9,5 @@ ttmm c ffjkfgfgkgfhnvbnvf
   falan var  bugün 
   ffcj
 çok güzel olmuş çok teşekkür gfd
-Her gün içinde 
+Her gün içinde gdfg
 Bir şey gre
