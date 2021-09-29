@@ -8,6 +8,6 @@ Gömlek bir bfbg
 ttmm c ffjkfgfgkgfhnvbnvf
   falan var  bugün 
   ffcj
-çok güzel olmuş çok teşekkür 
+çok güzel olmuş çok teşekkür gfd
 Her gün içinde 
 Bir şey gre
