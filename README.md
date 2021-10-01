@@ -1,6 +1,6 @@
 # frank-1 uygunb
 frankhhj  d b
-anna12344557788yyhhfflk
+anna
 yok 
 yağmur 
 Vjkkmmmmgkljc iyi hgjnhmgh
