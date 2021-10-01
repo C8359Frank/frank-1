@@ -11,4 +11,4 @@ ttmm c ffjkfgfgkgfhnvbnvf
 çok güzel olmuş çok teşekkür gfd
 Her gün içinde gofret 
 Bir şey daha 
-Var 
+Var ama 
