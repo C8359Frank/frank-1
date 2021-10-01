@@ -1,7 +1,7 @@
 # frank-1 uygunb
 frankhhj  d b
 anna12344557788yyhhfflk
-yyyyyykjjxdclkj
+yok 
 yağmur 
 Vjkkmmmmgkljc iyi hgjnhmgh
 Gömlek bir bfbg
