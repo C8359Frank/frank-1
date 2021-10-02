@@ -3,7 +3,7 @@ frankhhj  d b
 anna
 yok 
 yağmur 
-Vjkkmmmmgkljc iyi hgjnhmgh
+Tamam  hgjnhmgh
 Gömlek bir bfbg
 ttmm c ffjkfgfgkgfhnvbnvf
   falan var  bugün 
