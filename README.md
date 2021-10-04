@@ -1,5 +1,5 @@
 # frank-1 uygunb
-frankhhj  d b
+franklar 
 anna
 yok 
 yağmur yağıyor 
