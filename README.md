@@ -4,7 +4,7 @@ anna
 yok 
 yağmur yağıyor 
 Tamam f
-Gömlek bir bfbg
+Gömlek birim 
 ttmm c ffjkfgfgkgfhnvbnvf
   falan var  bugün 
   fiyat 
