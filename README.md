@@ -3,7 +3,7 @@ frankhhj  d b
 anna
 yok 
 yağmur yağıyor 
-Tamam f
+Tamamla 
 Gömlek birim 
 tamam 
   falan var  bugün 
