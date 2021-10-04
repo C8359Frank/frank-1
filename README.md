@@ -5,7 +5,7 @@ yok
 yağmur yağıyor 
 Tamam f
 Gömlek birim 
-ttmm c ffjkfgfgkgfhnvbnvf
+tamam 
   falan var  bugün 
   fiyat 
 çok güzel olmuş çok teşekkür gfd
