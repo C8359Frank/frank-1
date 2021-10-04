@@ -2,7 +2,7 @@
 frankhhj  d b
 anna
 yok 
-yağmur 
+yağmur yağıyor 
 Tamam f
 Gömlek bir bfbg
 ttmm c ffjkfgfgkgfhnvbnvf
