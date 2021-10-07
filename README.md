@@ -9,5 +9,5 @@ tamam
   falan var  bugün 
   fiyat 
 çok güzel olmuş çok teşekkür gidiyorum 
-Her gün içinde gofret 
-Bir daha 
+Her gün içinde
+Bir daha da 
