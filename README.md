@@ -8,6 +8,6 @@ Gömlek birim
 tamam 
   falan var  bugün 
   fiyat 
-çok güzel olmuş çok teşekkür gfd
+çok güzel olmuş çok teşekkür gidiyorum 
 Her gün içinde gofret 
 Bir daha 
