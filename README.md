@@ -1,4 +1,4 @@
-# frank-1 uygunb
+# frank-1 uygunsa 
 franklar 
 anna
 yok 
