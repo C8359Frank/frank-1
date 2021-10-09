@@ -9,5 +9,4 @@ tamam
   falan var  bugün 
   fiyat 
 çok güzel olmuş çok teşekkür gidiyorum 
-Her gün içinde
-Bir daha da çok iyi akşamlar 
+Her zaman isterseniz 
