@@ -10,4 +10,4 @@ tamam
   fiyat 
 çok güzel olmuş çok teşekkür gidiyorum 
 Her gün içinde
-Bir daha da 
+Bir daha da çok iyi akşamlar 
