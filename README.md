@@ -8,5 +8,5 @@ Six
 Seven
 Eight
 Nine
-Ten
+Tenis 
 El
