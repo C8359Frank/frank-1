@@ -5,9 +5,4 @@ Three
 Four
 Five
 six
-sevenşşş
-eightjjj
-nhhhhjjjknk
-jbjb
-mnkjhln
-kj
+seven
