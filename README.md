@@ -7,5 +7,5 @@ Five
 six
 seven
 eight
-ten
+tena
 eleven
