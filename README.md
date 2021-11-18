@@ -9,7 +9,7 @@ sevena
 eight
 tenavxcxdasdgd
 elevengdgd
-aafdsfdgd
+sağdaydım 
 Aaa
 aaaa
 a
