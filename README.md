@@ -8,8 +8,7 @@ sixaa
 sevenacxvxc
 eight
 tenavxcxdasdgd
-elevengdgd
-sağdaydım 
+elevengdgdvx
 Aaa
 aaaa
 a
