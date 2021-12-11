@@ -8,7 +8,7 @@ sixfjj
 seven
 eightf
 fffaa
-ffggjj
+ffggjjjj
 fggaaaaa
 gggaaaaajj
 aaa
